@@ -1,0 +1,1 @@
+I didnt make this tho its hard to find also you need unity explorer for gorilla tag and then enable it then bam you have the ai bot in your game idk if others can see it also put it in the plugins folder
